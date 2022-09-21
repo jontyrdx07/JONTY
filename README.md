@@ -1,2 +1,4 @@
 # JONTY
-Keep smiling.
+Keep smiling
+keep growing
+
